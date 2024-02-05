@@ -1,1 +1,1 @@
-www.motherofmercy.com
+motherofmercy.com
